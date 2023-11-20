@@ -1,1 +1,0 @@
-# Men-salon-Management-System
